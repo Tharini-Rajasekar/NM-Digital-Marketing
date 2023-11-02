@@ -1,0 +1,9 @@
+# NM-Digital-Marketing
+Digital Marketing Under Naan Mudhalvan Scheme.
+Project title: How to Create Brand Name, Brand Mail and Brand Logo in Canva
+Team ID-  NM2023TMID05849
+Rishika K: CF9EF763675CF95BE734205FBF00B72A
+Sowmiya V: C9521B6E0DCD1E786A546216381801CF
+Surrya UR: 49F9B1867679ABB8A4A4DB02E3F9E6E0
+Tharini R: 212BACABE7D3CF7ABEB4752CA4121BA0
+
